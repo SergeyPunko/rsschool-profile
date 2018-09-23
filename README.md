@@ -1,1 +1,1 @@
-https://www.codecademy.com/punkosergey/achievements
+https://www.codecademy.com/users/punkosergey/achievements
